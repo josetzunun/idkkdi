@@ -1,2 +1,2 @@
-# idkkdi
-Garbage
+# IDK
+[IDK BRUH IDIOT]
